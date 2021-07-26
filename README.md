@@ -1,5 +1,5 @@
 # Simple-Script
 By IzyanzZ
-Subscribe HansDzn
-Follow @HanzDzn_.
+\nSubscribe HansDzn
+\nFollow @HanzDzn_.
 # Script Simpel Untuk Pemula By IzYanzZ
